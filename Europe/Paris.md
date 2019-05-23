@@ -15,3 +15,7 @@ Paris, France's capital, is a major European city and a global center for art, f
 *
 
 ## Additional links
+
+## Petits tours en trotinette electrique :P 
+
+
